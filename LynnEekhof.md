@@ -1,2 +1,2 @@
 Hey! I'm knitting a sock!
-I'm almost finished.
+I have a question.
